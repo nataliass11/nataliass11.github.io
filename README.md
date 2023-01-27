@@ -39,7 +39,11 @@ Najważniejszą sprawą jest regularne dbanie o czystość i higienę sierści n
 Aby nasz piesek żył długo i zdrowo, bez względu na rasę powinniśmy zaopatrzyć się w bardzo dobre jakościowo karmy suche i mokre. 
 
 Oczywiście można podjąć się wyzwania samodzielnego gotowania posiłków, jednak jest to na pewno czasochłonne. Obecnie na rynku istnieje wiele dobrych karm, np. weteynaryjnych dzięki, którym nasz pies będzie miał zbilansowaną, odpowiednią do swoich potrzeb diętę.
-Na swoim jak i mojego Maltańczyka przykładzie korzystamy z karmy weterynaryjnej oraz gotowanych warzyw.
+Na przykładzie mojego Maltańczyka korzystamy z karmy weterynaryjnej oraz gotowanych warzyw takich jak:
+  - marchewki
+  - brokuły
+  - słodkie ziemniaczki
+
 Poniżej załączam listę dobrych firm wraz z adnotacją do stron producentów produkujących karmę sucha jak i miękką wartą zainteresowania :)
  1. [PSI BUFET](https://psibufet.pl/?code=2google20&utm_source=google&utm_medium=cpc&utm_campaign=070_Prospecting_PsiBuet_mokra_karma_SE&utm_term=070_0001_Karma_Mokra_BRP&gclid=EAIaIQobChMIqvL7ptXn_AIVNgWiAx0qhABREAAYASAAEgK6xfD_BwE&gclsrc=aw.ds)
  2. [ROYAL CANIN](https://www.royalcanin.com/pl/dogs/products?gclid=EAIaIQobChMI_-j7y9Xn_AIVYwWiAx3pkAzzEAAYASAAEgIIe_D_BwE&gclsrc=aw.ds)
